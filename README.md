@@ -1,2 +1,2 @@
 # novad
-for the development of #novad community guidelines
+for the development of #novad community 
