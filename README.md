@@ -1,6 +1,6 @@
 # #novad
 
-Sanctuary in a moment of crisis is a basic human need. In the global cultural landscape, operations of dominating cultural paradigms -- among them, capitalism, white supremacy, patriarchy, heterosexism, the gender binary, colonialism, ableism and the state -- all generate a constant state of crisis for people who do not identify or are not identified with the dominant class. This may include poor people, people of color, women, trans and non-binary people, queer people, indigenous people, disabled and neuro-variant people, undocumented and nomadic people, etc. 
+Sanctuary in a moment of crisis is a basic human need. In the global cultural landscape, operations of dominating cultural paradigms -- among them, capitalism, white supremacy, patriarchy, heterosexism, the gender binary, colonialism, ableism and the state -- all generate a constant state of crisis for people who do not identify or are not identified with the dominant class. This may include poor people, people of color, women, trans and non-binary people, queer people, indigenous people, disabled and neuro-variant people, undocumented and nomadic people, and others.
 
 This protocol is intended for a Sanctuary operated by Allies to offer its location, resources and solidarity with Anyone in need.
 
